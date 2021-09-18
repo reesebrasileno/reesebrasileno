@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @reesebrasileno
-- 👀 I’m interested in studing user experience and creating impactful designs
+- 👀 I’m interested in studying user experience and creating impactful designs
 - 🌱 I’m currently learning UX Design and Web Development
 - 💞️ I’m looking to collaborate on design projects
 - 📫 How to reach me? Twitter: @reesebrasileno
